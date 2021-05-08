@@ -1,6 +1,9 @@
 
 #  Data Sheets for vaccine availability are available in this repository
 
+Please download the CSVs available in the repository.
+
+
 
 #Tutorial
 
