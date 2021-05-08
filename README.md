@@ -1,5 +1,5 @@
 
-#Data Sheets are available in this repository
+#  Data Sheets for vaccine availability are available in this repository
 
 
 #Tutorial
