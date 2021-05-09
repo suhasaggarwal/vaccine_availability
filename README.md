@@ -2,7 +2,7 @@
 #  Data Sheets for vaccine availability are available in this repository
 
 Please download the CSVs available in the repository.
-This data is lieu of Heal the World - Campaign - according to Om Shanti Principles. 
+This data is in lieu of Heal the World - Campaign - according to Om Shanti Principles. 
 
 ![alt text](https://lh3.googleusercontent.com/proxy/sS408uehbFFrftV-2yJJqqJZjlHt7X32w-HwNI6-mVa5lQwGQveqSckK5idrO2qR64wU9lxW98q-N-92cutq17TzhvtMErooyBNzc4rXRugzHmM7-HDsweteG2iGGQxn=w1200-h630-p-k-no-nu)
 
