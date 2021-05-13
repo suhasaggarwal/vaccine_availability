@@ -4,9 +4,9 @@
 Please download the CSVs available in the repository.
 This data is in lieu of Heal the World - Campaign - according to Om Shanti Principles. 
 
-![alt_text](https://ibb.co/s5QXBc5)
+![alt_text](https://i.ibb.co/0BZzw1B/Photo-from-Suhas-1.jpg)
 
-![alt_text](https://ibb.co/Wt4x8C7)
+![alt_text](https://i.ibb.co/zJTn9dC/Photo-from-Suhas.jpg)
 
 
 😊😊😊
