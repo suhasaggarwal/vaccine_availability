@@ -14,6 +14,19 @@ This data is in lieu of Heal the World - Campaign - according to Om Shanti Princ
 ![alt text](https://lh3.googleusercontent.com/proxy/sS408uehbFFrftV-2yJJqqJZjlHt7X32w-HwNI6-mVa5lQwGQveqSckK5idrO2qR64wU9lxW98q-N-92cutq17TzhvtMErooyBNzc4rXRugzHmM7-HDsweteG2iGGQxn=w1200-h630-p-k-no-nu)
 
 
+# Possible Preventions 
+
+
+1)Sprays
+https://www.clickoncare.com/viro-shield-mouth-spray-30ml/questions
+
+
+2)Siver nanotechnology on microbes !!
+
+https://www.miracle.care/
+
+
+
 #Tutorial
 
 # Vaccine Availability With Python
