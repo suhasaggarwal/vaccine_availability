@@ -17,13 +17,20 @@ This data is in lieu of Heal the World - Campaign - according to Om Shanti Princ
 # Possible Preventions 
 
 
+
 1)Sprays
 https://www.clickoncare.com/viro-shield-mouth-spray-30ml/questions
+
 
 
 2)Siver nanotechnology on microbes !!
 
 https://www.miracle.care/
+
+
+
+
+
 
 
 
