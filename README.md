@@ -36,7 +36,8 @@ https://www.amazon.in/gp/product/B08NPJXBNY/ref=ppx_yo_dt_b_asin_title_o08_s00?i
 
 
 
-#Tutorial
+
+# Tutorial
 
 # Vaccine Availability With Python
 Get vaccine availability in India
