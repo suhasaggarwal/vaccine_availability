@@ -30,9 +30,9 @@ https://www.clickoncare.com/viro-shield-mouth-spray-30ml/questions
 https://www.miracle.care/
 
 
+3)Capsules (Herbal)
 
-
-
+https://www.amazon.in/gp/product/B08NPJXBNY/ref=ppx_yo_dt_b_asin_title_o08_s00?ie=UTF8&psc=1
 
 
 
